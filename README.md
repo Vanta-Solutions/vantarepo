@@ -1,2 +1,2 @@
 # vantarepo
-All detailed on Vanta Solutions profile
+All details on Vanta Solutions profile
